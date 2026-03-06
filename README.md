@@ -1,4 +1,4 @@
-# Acesso ao Caderno Interativo: https://notebooklm.google.com/notebook/63911aa6-813d-4005-9e87-b1efc05c34f7
+Acesso ao Caderno Interativo: https://notebooklm.google.com/notebook/63911aa6-813d-4005-9e87-b1efc05c34f7
 
 # 🧠 Guia de Psicologia Financeira e Investimentos (2026)
 
